@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Check out my other account [PaulMuellerQC](https://github.com/PaulMuellerQC)
+Check out my other account [PaulKMueller](https://github.com/PaulKMueller)
 
 
 <!---
